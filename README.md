@@ -1,1 +1,1 @@
-# rsschool-cv
+https://innervsn.github.io/rsschool-cv/cv
